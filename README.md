@@ -1,0 +1,2 @@
+# LegitMagic.github.io
+Website
